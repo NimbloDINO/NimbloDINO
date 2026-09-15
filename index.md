@@ -22,7 +22,7 @@ show_call_box: true
 [YouTube](https://www.youtube.com/@NimbloDINO_Music)
 &nbsp; 
 &nbsp; 
-[Contact Us](https://forms.gle/JtmLQko6vE9zB5uW9) 
+[Contact Me](https://forms.gle/JtmLQko6vE9zB5uW9) 
 &nbsp; 
 &nbsp; 
 
@@ -42,7 +42,7 @@ Watch and learn how to play piano and violin using my arranged sheet musics!
 
 ### Purchase sheet musics
 Check out the latest K-pop and classical music arrangements!
-[List of songs](/docs/List_of_Songs.html)
+[List of songs](https://NimbloDINO.github.io/docs/List_of_Songs.html)
 
 &nbsp;
 
@@ -53,7 +53,7 @@ Click the link below to purchase latest K-pop and classical music arrangements!
 &nbsp; 
 ### Request songs
 Please share your request below. While I cannot guarantee a specific delivery date, I will keep in mind when I make the next sheet music.
-[Contact Us](https://NimbloDINO.github.io/docs/Contact_Us.html) 
+[Contact Me](https://NimbloDINO.github.io/docs/Contact_Me.html) 
 
 &nbsp; 
 &nbsp; 
