@@ -8,7 +8,7 @@ intro_image_hide_on_mobile: true
 show_call_box: true
 ---
 
-![NimbloDINO logo full](/images/NimbloDINO_dinosaur_V3_full.png)
+![NimbloDINO logo full](/images/NimbloDINO_dinosaur_V3_cropped.png)
 
 [Home](https://NimbloDINO.github.io/) 
 &nbsp; 
