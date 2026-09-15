@@ -22,7 +22,7 @@ show_call_box: true
 [YouTube](https://www.youtube.com/@NimbloDINO_Music)
 &nbsp; 
 &nbsp; 
-[Contact Us](https://NimbloDINO.github.io/docs/Contact_Us.html) 
+[Contact Us](https://forms.gle/JtmLQko6vE9zB5uW9) 
 &nbsp; 
 &nbsp; 
 
