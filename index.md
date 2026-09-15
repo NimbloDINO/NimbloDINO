@@ -42,7 +42,7 @@ Watch and learn how to play piano and violin using my arranged sheet musics!
 
 ### Purchase sheet musics
 Check out the latest K-pop and classical music arrangements!
-[List of songs](/docs/List_of_songs.html)
+[List of songs](/docs/List_of_Songs.html)
 
 &nbsp;
 
