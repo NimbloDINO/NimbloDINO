@@ -52,7 +52,7 @@ Click the link below to purchase latest K-pop and classical music arrangements!
 
 &nbsp; 
 ### Request songs
-Please leave a message for any song requests. I cannot guarantee timeline, but I'll try to get to the list when I have time!
+Please share your request below. While I cannot guarantee a specific delivery date, I will keep in mind when I make the next sheet music.
 [Contact Us](https://NimbloDINO.github.io/docs/Contact_Us.html) 
 
 &nbsp; 
