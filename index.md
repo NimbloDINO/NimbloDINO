@@ -29,8 +29,7 @@ show_call_box: true
 # NimbloDINO Music
 
 ---
-### Be Simple Be Nimble! 
-### Subscribe to my channel to access the latest K-pop and classical music arrangements for piano and violin!  
+### Be Simple Be Nimble! Subscribe to my channel to access the latest K-pop and classical music arrangements for piano and violin!  
 &nbsp; 
 
 
