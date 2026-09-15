@@ -5,7 +5,7 @@ description: Sheet Musics List
 bodyClass: page-about
 ---
 
-![NimbloDINO_logo_full](../images/NimbloDINO_dinosaur_V3_full.png)
+![NimbloDINO_logo_full](../images/NimbloDINO_dinosaur_V3_cropped.png)
 
 [Home](https://NimbloDINO.github.io/) 
 &nbsp; 
