@@ -28,15 +28,15 @@ I learned piano and violin when I was a kid. I also liked watching Korean dramas
 &nbsp; 
 &nbsp; 
 
-When I was young, there was no option to purchase Korean sheet musics from overseas, so with my perfect pitch, I decided to transcribe and arrange music to share with other K-pop and Korean OST lovers overseas. This was my hobby on the side, but I had to stop for awhile to focus on my education.
+When I was young, there were no options to purchase Korean sheet musics from overseas. So, I decided to transcribe and arrange music with my ears and share these with other K-pop and Korean OST lovers overseas. This was my hobby on the side, but I had to stop for awhile to focus on my education.
 &nbsp; 
 &nbsp; 
 
-Nowadays, there are a lot of YouTubers who make great piano and violin arrangements. 
+Now that I am less busy, I wanted to develop my music skills again and share my love of music with others. 
 &nbsp; 
 &nbsp; 
 
-Often, classical musics are too difficult for beginner/intermediate learners, and K-pop/drama OSTs are sometimes too easy for technical advancement.
+From talking to peers around me, I learned that many people feel that classical musics are too difficult to learn for beginner/intermediate learners, and K-pop/drama OSTs are sometimes too easy for technical advancement.
 &nbsp; 
 &nbsp; 
 
