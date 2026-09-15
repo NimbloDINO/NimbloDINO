@@ -28,12 +28,21 @@ bodyClass: page-about
 [Sheet Music Direct Catalogs](https://www.sheetmusicdirect.com/publisher/nimblodino)
 
 &nbsp; 
+&nbsp; 
+
 Feel free to browse my official sheet musics below!
+
+&nbsp; 
 &nbsp; 
 
 1. [Danse Mot Var (Serenade to Spring)](https://www.sheetmusicdirect.com/se/ID_No/1734349/Product.aspx)
-&nbsp; 
 
+&nbsp; 
+&nbsp; 
+&nbsp; 
+&nbsp; 
+&nbsp; 
+&nbsp; 
 
 
 
