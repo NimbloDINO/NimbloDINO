@@ -32,7 +32,7 @@ When I was young, there was no option to purchase Korean sheet musics from overs
 &nbsp; 
 &nbsp; 
 
-Now, there are a lot of YouTubers who make great piano and violin arrangements. 
+Nowadays, there are a lot of YouTubers who make great piano and violin arrangements. 
 &nbsp; 
 &nbsp; 
 
