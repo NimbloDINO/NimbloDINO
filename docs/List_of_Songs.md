@@ -60,8 +60,20 @@ Feel free to browse my official sheet musics below!
 &nbsp; 
 
 [Sheet Music Direct Catalogs](https://www.sheetmusicdirect.com/publisher/nimblodino)
+
+&nbsp; 
+&nbsp; 
+
 [mymusic5](https://www.mymusic5.com/search?artistSearch=nimblodino)
+
+&nbsp; 
+&nbsp; 
+
 [mapianist](https://www.mapianist.com/profile/1422909/sheet/post)
+
+&nbsp; 
+&nbsp; 
+
 [kokomu](https://www.kokomu.jp/search?keyword=nimblodino)
 
 
