@@ -29,10 +29,11 @@ bodyClass: page-about
 ## Original Soundtracks / K-POP
 
 ### Painter of the Wind (바람의 화원) OST
-1. [Jo Sungmo - Song of the Wind (Painter of the Wind OST) | 조성모 - 바람의 노래 (바람의 화원 OST)](https://mymusic5.com/applink?sheet_id=519698)
+[Jo Sungmo - Song of the Wind (Painter of the Wind OST) | 조성모 - 바람의 노래 (바람의 화원 OST)](https://mymusic5.com/applink?sheet_id=519698)
 - [YouTube](https://www.youtube.com/watch?v=4XTJTN9oy8M)
 
 &nbsp;
+
 [Jeon Chang Yeop - Laughing and Crying (Painter of the Wind OST) | 전창엽 - 울다가 웃다가 (바람의 화원 OST)](https://mymusic5.com/nimblodino/519785)
 - [YouTube](https://youtu.be/XcE32rzhXAs)
 
