@@ -28,7 +28,7 @@ bodyClass: page-about
 
 ## Original Soundtracks / K-POP
 
-[Song of the Wind] (https://mymusic5.com/applink?sheet_id=519698)
+[Sung-Mo Jo / 조성모 - Song of the Wind / 바람의 노래 (Painter of the Wind OST)](https://mymusic5.com/applink?sheet_id=519698)
 
 &nbsp; 
 &nbsp; 
