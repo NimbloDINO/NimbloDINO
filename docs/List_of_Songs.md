@@ -34,19 +34,28 @@ bodyClass: page-about
 &nbsp; 
 &nbsp; 
 
-[Junggigo - D-Day (My ID is Gangnam Beauty OST) | 정기고 - D-Day (내 아이디는 강남미인 OST)]()
-- [YouTube]()
+[Junggigo - D-Day (My ID is Gangnam Beauty OST) | 정기고 - D-Day (내 아이디는 강남미인 OST)]
+- [YouTube]
 
 &nbsp; 
 &nbsp; 
 
 
 [Yang Yoseop - The Divine Move (Hwarang OST) | 양요섭 - 신의 한 수 (화랑 OST)](https://mymusic5.com/applink?sheet_id=519709)
-- [YouTube link](https://www.youtube.com/watch?v=PVxtpAaOIhw)
+- [YouTube](https://www.youtube.com/watch?v=PVxtpAaOIhw)
 
 &nbsp; 
 &nbsp; 
 
+[Hyolyn - Become Each Other's Tears (Hwarang OST) | 효린 - 서로의 눈물이 되어 (화랑 OST)](https://mymusic5.com/nimblodino/519738)
+- [YouTube](https://www.youtube.com/watch?v=AcA4ta2a5VI)
+
+&nbsp; 
+&nbsp; 
+
+
+&nbsp; 
+&nbsp; 
 
 ## Folk songs / classics
 
