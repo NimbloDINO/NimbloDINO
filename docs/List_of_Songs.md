@@ -28,19 +28,27 @@ bodyClass: page-about
 
 ## Original Soundtracks / K-POP
 
+### Painter of the Wind (바람의 화원) OST
 [Jo Sungmo - Song of the Wind (Painter of the Wind OST) | 조성모 - 바람의 노래 (바람의 화원 OST)](https://mymusic5.com/applink?sheet_id=519698)
 - [YouTube](https://www.youtube.com/watch?v=4XTJTN9oy8M)
 
 &nbsp; 
 &nbsp; 
 
+[Jeon Chang Yeop - Laughing and Crying (Painter of the Wind OST) | 전창엽 - 울다가 웃다가 (바람의 화원 OST)](https://mymusic5.com/nimblodino/519785)
+- [YouTube](https://youtu.be/XcE32rzhXAs)
+
+&nbsp; 
+&nbsp; 
+
+### My ID is Gangnam Beauty (내 아이디는 강남미인) OST
 [Junggigo - D-Day (My ID is Gangnam Beauty OST) | 정기고 - D-Day (내 아이디는 강남미인 OST)]
 - [YouTube]
 
 &nbsp; 
 &nbsp; 
 
-
+### Hwarang (화랑) OST
 [Yang Yoseop - The Divine Move (Hwarang OST) | 양요섭 - 신의 한 수 (화랑 OST)](https://mymusic5.com/applink?sheet_id=519709)
 - [YouTube](https://www.youtube.com/watch?v=PVxtpAaOIhw)
 
@@ -86,19 +94,15 @@ bodyClass: page-about
 Feel free to browse my official sheet musics below!
 
 &nbsp; 
-
 [Sheet Music Direct Catalogs](https://www.sheetmusicdirect.com/publisher/nimblodino)
 
 &nbsp; 
-
 [mymusic5](https://www.mymusic5.com/search?artistSearch=nimblodino)
 
 &nbsp; 
-
 [mapianist](https://www.mapianist.com/profile/1422909/sheet/post)
 
 &nbsp; 
-
 [kokomu](https://www.kokomu.jp/search?keyword=nimblodino)
 
 
