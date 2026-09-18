@@ -33,12 +33,9 @@ bodyClass: page-about
 - [YouTube](https://www.youtube.com/watch?v=4XTJTN9oy8M)
 
 &nbsp; 
-&nbsp; 
-
 [Jeon Chang Yeop - Laughing and Crying (Painter of the Wind OST) | 전창엽 - 울다가 웃다가 (바람의 화원 OST)](https://mymusic5.com/nimblodino/519785)
 - [YouTube](https://youtu.be/XcE32rzhXAs)
 
-&nbsp; 
 &nbsp; 
 
 ### My ID is Gangnam Beauty (내 아이디는 강남미인) OST
@@ -53,24 +50,17 @@ bodyClass: page-about
 - [YouTube](https://www.youtube.com/watch?v=PVxtpAaOIhw)
 
 &nbsp; 
-&nbsp; 
-
 [Hyolyn - Become Each Other's Tears (Hwarang OST) | 효린 - 서로의 눈물이 되어 (화랑 OST)](https://mymusic5.com/nimblodino/519738)
 - [YouTube](https://www.youtube.com/watch?v=AcA4ta2a5VI)
 
 &nbsp; 
-&nbsp; 
-
 [V & Jin (BTS) - It's Definitely You (Hwarang OST) | 뷔 & 진 (BTS) - 죽어도 너야 (화랑 OST)](https://mymusic5.com/nimblodino/519756)
 - [YouTube](https://youtu.be/nSnr1ucHgRI)
 
 &nbsp; 
-&nbsp; 
-
 [Punch & GLABINGO - Beautiful Beautiful (The Best Hit OST) | 펀치 & 글라빙고 - Beautiful Beautiful (최고의 한방 OST)](https://mymusic5.com/nimblodino/519777)
 - [YouTube](https://www.youtube.com/watch?v=Amf1SQKppmY)
 
-&nbsp; 
 &nbsp; 
 
 
