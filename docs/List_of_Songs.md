@@ -53,6 +53,8 @@ bodyClass: page-about
 &nbsp; 
 &nbsp; 
 
+[V & Jin (BTS) - It's Definitely You (Hwarang OST) | 뷔 & 진 (BTS) - 죽어도 너야 (화랑 OST)](https://mymusic5.com/nimblodino/519756)
+- [YouTube](https://youtu.be/nSnr1ucHgRI)
 
 &nbsp; 
 &nbsp; 
