@@ -40,7 +40,7 @@ bodyClass: page-about
 &nbsp; 
 
 ### My ID is Gangnam Beauty (내 아이디는 강남미인) OST
-[Junggigo - D-Day (My ID is Gangnam Beauty OST) | 정기고 - D-Day (내 아이디는 강남미인 OST)]
+[Junggigo - D-Day (My ID is Gangnam Beauty OST) | 정기고 - D-Day (내 아이디는 강남미인 OST)](https://www.sheetmusicdirect.com/se/ID_No/2155084/Product.aspx)
 - [YouTube]
 
 &nbsp; 
